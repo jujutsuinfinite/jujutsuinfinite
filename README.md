@@ -8,7 +8,7 @@ Jujutsu Infinite is a Roblox RPG title where you start as your own Jujutsu sorce
 
 ## 🥳⇨ [`Paly Jujutsu Infinite` ](https://jujutsuinfinite.org/)
 
-## 👻⇨[ `Become a Powerful Jujutsu Sorcerer!`](https://jujutsuinfinite.org/)
+## 👻⇨[ `Jujutsu Infinite Codes|Become a Powerful Jujutsu Sorcerer!`](https://jujutsuinfinite.org/)
 
 ### How to Play Jujutsu Infinite?
 
